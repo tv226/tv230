@@ -29,7 +29,7 @@
 <a href="http://hqw.lexmarktr.com/v2/index.html" target="_blank">网址二</a> 　 
 <a href="http://hvz.lexmarktr.com/tt/index.html" target="_blank">网址三</a> 　</p>
 <p>◎ • (E2_视频/语音)《九 评》视频/语音: 
-<a href="http://hqw.lexmarktr.com/7738.html" target="_blank">网址一</a> 　 
+<a href="http://hxz.lexmarktr.com/7738.html" target="_blank">网址一</a> 　 
 <a href="http://hqw.lexmarktr.com/7614.html" target="_blank">网址二</a> 　 
 <a href="http://hvz.lexmarktr.com/7633.html" target="_blank">网址三</a></p>
 <p>◎ • 三 退 管 道...退 党 网：  
